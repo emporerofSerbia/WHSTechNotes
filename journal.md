@@ -1,3 +1,10 @@
+# September 30, 2024
+
+Everyday for to start off my morning, I play wordle. It's not good for me, I know that much, but its latched onto me. I can't move on with
+the day without knowing I've done it. It's an easy code, Wordle. I did it once for just this everday CSA assignment and just moved on.
+Yet nevertheless, this is what I need on the daily basis.
+
+
 # September 12, 2024
 
 I think the instructions were perfect. I read them through for like 5 minutes and all of a sudden I made a perfect journal. The instructions are really clear, I think it's just user error as the problem.
