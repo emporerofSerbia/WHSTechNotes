@@ -1,3 +1,12 @@
+# September 20, 2024
+
+This is a free week
+
+# September 27, 2024
+
+Code isn't human. To talk to the machine, you need to language EXACTLY like how it wants. There can be no ambiguous, no unclear basis
+that a human could just assume over. Following instruction exactly as they are given is vital to learning how to code. There are many ways to teach, but there is only really one exact thing to teach. English classes differ from America to Britain, each with their own slang and vernacular, but in coding, there is only one, PRECISE language.
+
 # September 30, 2024
 
 Everyday for to start off my morning, I play wordle. It's not good for me, I know that much, but its latched onto me. I can't move on with
