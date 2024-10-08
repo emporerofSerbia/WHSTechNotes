@@ -1,3 +1,14 @@
+# October 7, 2024
+
+1. Web developer
+2. Create use and ergodynamic web sites for people
+3. Bachelors degree, computer science degree, heavy experience and good home projects
+4.  Bachelors degree, computer science degree, heavy experience and good home projects
+5.  Expected growth of around 10% in ten years
+6.  I like making intuitive and easy to use things, I like webistes in general, and i think we have a need for better ones.
+
+
+
 # September 20, 2024
 
 This is a free week
