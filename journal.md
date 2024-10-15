@@ -1,3 +1,10 @@
+# October 15, 2024
+
+1. Coding majorly helps problem solving through it's need for creative thinking. The basics of code are easy, but very just not human. If you wanna reverse a string or make palindromes, you're gonna have to make full use of your for-loops,
+   and being to use them with full understanding. There's never a straight forward, one-step solution.
+2. Knowing code helps you underatdn how the computer and software probably works. You can work with it when making spreadsheets, or even code your owb systems to automate your work.
+3. Coding requires people to come together and think of genuinly insane way to solve problems. It needs that creativity, to use your crude tools to solve real world problems.
+
 # October 7, 2024
 
 1. Web developer
