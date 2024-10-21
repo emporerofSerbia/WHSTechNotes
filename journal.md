@@ -1,3 +1,10 @@
+# October 21, 2024
+
+AI will be a major help to programmers. Why make an entire least to greatest sorting code when ai can just copy and paste it in for you. It'll make all the typing a lot faster. We can mold it to our needs and make it perfect for everything we want
+AI in the job market will slash the demand for our volume of programmers. Since makign the simple code is now easy, only the best of the best are needed for real algorithms an AI can't do yet. And with time, as AI gets better, the need for
+more programmers will reach a bell curve.
+
+
 # October 15, 2024
 
 1. Coding majorly helps problem solving through it's need for creative thinking. The basics of code are easy, but very just not human. If you wanna reverse a string or make palindromes, you're gonna have to make full use of your for-loops,
