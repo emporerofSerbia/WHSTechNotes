@@ -1,3 +1,9 @@
+# October 29, 2024
+
+Technology could greatly expand the reach that polling could go. Instead of having to put a station with police, a secure ticket stand, and a million ways to make sure people don't sneak in multiple tickets, we coudl have just throw down a polling booth and call it a day. The algorithm can be tried and tried again to be infallible, it's way cheaper, and can make accurately counting the vote way easier. However, scams and hacking become a big fear with this. Many people have accused the 2016 and 2020 elections robbed, with both sides fearing the other interefering with the machines.
+
+
+
 # October 21, 2024
 
 AI will be a major help to programmers. Why make an entire least to greatest sorting code when ai can just copy and paste it in for you. It'll make all the typing a lot faster. We can mold it to our needs and make it perfect for everything we want
