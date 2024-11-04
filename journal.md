@@ -1,3 +1,10 @@
+# November 4, 2024
+
+1. It's vital to protect your information when publishing online. Your sensitive information can be used against you to access things like your bank account, social security, and do reveal private things you don't want revealed.
+2. Steps taken to prevent the release of your personal data are things like a password. Multi-factor authentification especially is a great way to ensure your account won't be hacked for a long time.
+3. This one time I shared with my friends a picture of this dog, but my feet were in frame. They took screenshot after screenshot, and even after i deleted the picture, my feet may never be truely secret again.
+4. Balancing being open while still keeping your htings private can be achieved with things like a public account. The account will only have things you don't really care if they get hacked. No secret passwords, private anything in the account, so that you can use it freely without fear if getting exposed.
+
 # October 29, 2024
 
 Technology could greatly expand the reach that polling could go. Instead of having to put a station with police, a secure ticket stand, and a million ways to make sure people don't sneak in multiple tickets, we coudl have just throw down a polling booth and call it a day. The algorithm can be tried and tried again to be infallible, it's way cheaper, and can make accurately counting the vote way easier. However, scams and hacking become a big fear with this. Many people have accused the 2016 and 2020 elections robbed, with both sides fearing the other interefering with the machines.
