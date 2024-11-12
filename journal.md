@@ -1,3 +1,9 @@
+
+# November 12, 2024
+
+1. A U.S airliner was struck by gunfire while going over Haitian borders. This relates to our class because had their data-solving, enemy bomber analyzer been working, it wouldn't have tried to fire down a U.S comercial airline.
+2. Things like A.I could utylize adaptive pattern recognition to find out what is safe and what isn't, being reliable even through the test of time.
+
 # November 4, 2024
 
 1. It's vital to protect your information when publishing online. Your sensitive information can be used against you to access things like your bank account, social security, and do reveal private things you don't want revealed.
