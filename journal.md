@@ -1,3 +1,6 @@
+# November 18, 2024
+We might be celebrating Thanksgiving next week, but only maybe. I personally bomb an orphanage every Thanksgiving so that the children can be thankful before I take EVERYTHING away. But in popular
+culture, Thanksgiving is coming.
 
 # November 12, 2024
 
