@@ -1,3 +1,8 @@
+# December 2, 2024
+
+One way AI has been advancing is in study material. Theres this website, I forgot the name, but it takes a picture of your school notes and generates a talk between two people about these notes, covering every niche subject 
+possible. This is CRAZY for memoriuzing notes because you can play it WHEREVER and whenever!!!!! I love it, so much easier and better than rereading or blurting out notes.
+
 # November 18, 2024
 We might be celebrating Thanksgiving next week, but only maybe. I personally bomb an orphanage every Thanksgiving so that the children can be thankful before I take EVERYTHING away. But in popular
 culture, Thanksgiving is coming.
