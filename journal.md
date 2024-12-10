@@ -1,3 +1,8 @@
+# December 9, 2024
+
+Brain rot, I think comes from humor as it's evolved to children, plus new ai and computer generated videos. They're alright I guess. We shoudl limit screen time, or atleast force companies to make a way to toggle their short-form videos because that's something I want. Sometimes after a really depressing day on the phone, I feel brain fog. I can't think well, I can't do anything well. I HATE IT. I hate the phone it's cool for calling your friends but everything else NO. 
+I bet Lebron never watched short-form videos and look at him now. We need to stop this. 
+
 # December 2, 2024
 
 One way AI has been advancing is in study material. Theres this website, I forgot the name, but it takes a picture of your school notes and generates a talk between two people about these notes, covering every niche subject 
