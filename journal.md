@@ -1,3 +1,7 @@
+# December 16, 2024
+
+IM SO EXCITED FOR WINTER BREAK!!!!!!1!1!1!1! School has been kicking my ass recenntly with all these stupid ap's and i NEEEEEED a break. I NEEEEEED A BREAK PLEAASSEE. I WANT TOOO LIVE!!!!!! I have to use the time to catch up on all my CS work because some of it, genuinly, is so hard. I need some time to look up the answer and just analyze everything about it and learn all I can. He dropped a bunch of these "maze problems" about iterating through a maze and he also gave us the answer, but the pure algorithm just for iterating through the maze is like 100 LINES OF CODE of turning spaces to hashtags and finding the fastest way through the maze without a time complexity of O(n!); I NEEEED THIS BREAK.
+
 # December 9, 2024
 
 Brain rot, I think comes from humor as it's evolved to children, plus new ai and computer generated videos. They're alright I guess. We shoudl limit screen time, or atleast force companies to make a way to toggle their short-form videos because that's something I want. Sometimes after a really depressing day on the phone, I feel brain fog. I can't think well, I can't do anything well. I HATE IT. I hate the phone it's cool for calling your friends but everything else NO. 
