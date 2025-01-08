@@ -1,3 +1,9 @@
+# January 8, 2025
+
+I enjoyed most how easy the class was, and how I could work on my freakishly hard assignments from cs3 during this period it really helped. Something to be improved is how bright this monitor is. I hope I can figure out how to dim it in the future.
+I would love to learn how to iterate through a maze in java, Mr. Fenoglio gave us a bunch of these problems and he gave us the solution but its like a quadruple for-loop with 8 cases of recursion I just can't take it, no one in my class has even been able to touch it.
+I want to pursure the Python certification because it's super easy and fun. My friend (no prior Python knowledge) studied Python for like 20 minutes and passed the certificationg course so I'm excited for it. I would just want the mini-course and the test.
+
 # December 16, 2024
 
 IM SO EXCITED FOR WINTER BREAK!!!!!!1!1!1!1! School has been kicking my ass recenntly with all these stupid ap's and i NEEEEEED a break. I NEEEEEED A BREAK PLEAASSEE. I WANT TOOO LIVE!!!!!! I have to use the time to catch up on all my CS work because some of it, genuinly, is so hard. I need some time to look up the answer and just analyze everything about it and learn all I can. He dropped a bunch of these "maze problems" about iterating through a maze and he also gave us the answer, but the pure algorithm just for iterating through the maze is like 100 LINES OF CODE of turning spaces to hashtags and finding the fastest way through the maze without a time complexity of O(n!); I NEEEED THIS BREAK.
