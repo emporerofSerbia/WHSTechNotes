@@ -1,3 +1,7 @@
+# January 13, 2025
+
+I am SCARED of ai. I'm thinking of switching career plans because I've heard every argument for computer science, how "we still need programmers to make the ai" and "programmers are stil relavant now" and yeah thats true. They may be safe for another 20 years but what about 40? 50? Is this a career that's safe for the rest of my life, or will I be homeless at the age of 40? I DONT KNOW!!!! AND NO ONE REALLY DOES!!!!!!
+
 # January 8, 2025
 
 I enjoyed most how easy the class was, and how I could work on my freakishly hard assignments from cs3 during this period it really helped. Something to be improved is how bright this monitor is. I hope I can figure out how to dim it in the future.
