@@ -1,3 +1,7 @@
+# January 22, 2025
+
+I think the government intervention at TikTok showed the flaws when it comes to decisions made by the Supreme Court. They aren't scientists, no mathmeticians, no logicians, no technology experts. They can handle most cases when it comes to most things, but for things they don't know about? Things like data-security in TikTok, they are WORTHLESS!!!! I don't even use TikTok and I could tell how unfair that court meeting was. I believe the Supreme Court should have a subsect of Supreme Advisors, who tell them whats going on for things they can't possibly understand.
+
 # January 13, 2025
 
 I am SCARED of ai. I'm thinking of switching career plans because I've heard every argument for computer science, how "we still need programmers to make the ai" and "programmers are stil relavant now" and yeah thats true. They may be safe for another 20 years but what about 40? 50? Is this a career that's safe for the rest of my life, or will I be homeless at the age of 40? I DONT KNOW!!!! AND NO ONE REALLY DOES!!!!!!
