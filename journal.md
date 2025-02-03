@@ -1,3 +1,7 @@
+# February 3, 2025
+Today, there are WAY too many planes in the air for a human to be able to make sure nothing crashes, so automation is a must. All a pilot does is a follow a pre-set flight path, a path set by a computer. It's already supposed to be impervious to tragedy, yet here we are. Maybe the military copter wasn't bound to a path, being for military, or maybe there was just an error.
+Purposeful human interference is a real thing and is a big reason why there's still a pilot on all air planes. Maybe we can have 2 computer programms on every plane, and if the first one starts deviating for the set flight path, the second one, (probably set with more authority), can just completely take over. Maybe we can coat all computer decision making objects with a thin layer of copper, (copper blocks jamming signals), and mabually open it when the plane wants to send a signal.
+
 # January 22, 2025
 
 I think the government intervention at TikTok showed the flaws when it comes to decisions made by the Supreme Court. They aren't scientists, no mathmeticians, no logicians, no technology experts. They can handle most cases when it comes to most things, but for things they don't know about? Things like data-security in TikTok, they are WORTHLESS!!!! I don't even use TikTok and I could tell how unfair that court meeting was. I believe the Supreme Court should have a subsect of Supreme Advisors, who tell them whats going on for things they can't possibly understand.
