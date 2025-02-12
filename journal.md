@@ -1,3 +1,8 @@
+# February 11, 2025
+
+I'd start by feeding it every play ever made in proffessional football so it can start to see what really works, what plays on average, score the best in their certain environments. Applicating would need the stats of every one of your players and the stats of the team they're going against. 
+It could be able to calculate whether letting a person run for a touchdown is a good play, depending on the enemy players around him and they're speeds, whether they'd be able to intercept. It could quickly find the weakpoints of your team like speed or weight. 
+
 # February 3, 2025
 Today, there are WAY too many planes in the air for a human to be able to make sure nothing crashes, so automation is a must. All a pilot does is a follow a pre-set flight path, a path set by a computer. It's already supposed to be impervious to tragedy, yet here we are. Maybe the military copter wasn't bound to a path, being for military, or maybe there was just an error.
 Purposeful human interference is a real thing and is a big reason why there's still a pilot on all air planes. Maybe we can have 2 computer programms on every plane, and if the first one starts deviating for the set flight path, the second one, (probably set with more authority), can just completely take over. Maybe we can coat all computer decision making objects with a thin layer of copper, (copper blocks jamming signals), and mabually open it when the plane wants to send a signal.
