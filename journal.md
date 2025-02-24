@@ -1,3 +1,10 @@
+# February 24, 2025
+
+One way technology can be used to help teachers adapt to new language is by scanning for new BUZZ words. It can just randomly go through popular social media, perhaps check with the owner to go into videos tailored and shared to younger kids, and check for any new or out of place words. It can give a decent defintion of the word, or as best as it can do, and the teacher can use their own context clue to fill in the rest. Ways this could beneift the kids and teachers is by curbing bullying, or finding out what message is encoded into the new weird words. Like goon in the dictionary means like a thug or lackey, but in pop-culture, it means to masturbate (WHAT). 
+
+# 
+
+
 # February 11, 2025
 
 I'd start by feeding it every play ever made in proffessional football so it can start to see what really works, what plays on average, score the best in their certain environments. Applicating would need the stats of every one of your players and the stats of the team they're going against. 
