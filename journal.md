@@ -1,8 +1,10 @@
 # February 24, 2025
 
-One way technology can be used to help teachers adapt to new language is by scanning for new BUZZ words. It can just randomly go through popular social media, perhaps check with the owner to go into videos tailored and shared to younger kids, and check for any new or out of place words. It can give a decent defintion of the word, or as best as it can do, and the teacher can use their own context clue to fill in the rest. Ways this could beneift the kids and teachers is by curbing bullying, or finding out what message is encoded into the new weird words. Like goon in the dictionary means like a thug or lackey, but in pop-culture, it means to masturbate (WHAT). 
+One way technology can be used to help teachers adapt to new language is by scanning for new BUZZ words. It can just randomly go through popular social media, perhaps check with the owner to go into videos tailored and shared to younger kids, and check for any new or out of place words. It can give a decent defintion of the word, or as best as it can do, and the teacher can use their own context clue to fill in the rest. Ways this could beneift the kids and teachers is by curbing bullying, or finding out what message is encoded into the new weird words. Like goon in the dictionary means like a thug or lackey, but in pop-culture, it means to masturbate (WHAT). "Speak a person's language and you speak to their head. Speak a person's tongue and you speak to their heart." (Tongue as in mother-language). Knowing young slang helps them connect with the youngsters, making a mututal bond of trust that makes the student think the teacher is important enough to care about them and what they teach.
 
-# 
+# February 18, 2025
+
+One thing I learned last week was about the Great Dying, an event like 700 million years ago. It was really cool and scary and a shiver ran down my spine hearing about it. I got it from a youtube video. After a lot of volcano eruption events, the air and water became so acidified that almost everything died. Tmog sent the world into a global winter with no sun. Life almost died here but it's alright.
 
 
 # February 11, 2025
