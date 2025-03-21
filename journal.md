@@ -1,6 +1,7 @@
 # March 4, 2025
 
 | Name     | Power                | Challenge             |
+|----------|----------------------|-----------------------|
 | Zara     | Invisibility         | Extract Prisoner      |
 | Aether   | Telekenisis          | Secure Building       |
 | Thorne   | Shape Shifting       | Retrieve Stolen Goods |
