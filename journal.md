@@ -1,3 +1,12 @@
+# March 4, 2025
+
+| Name     | Power                | Challenge             |
+| Zara     | Invisibility         | Extract Prisoner      |
+| Aether   | Telekenisis          | Secure Building       |
+| Thorne   | Shape Shifting       | Retrieve Stolen Goods |
+| Silver   | Mind Control         | Underwater Rescure    | 
+| Tangier  | Weather Manipulation | Prevent Assasination  |
+
 # March 17, 2025
 
 I used technology a LOT over break and had to watch a youtube video in order to understand how to download Minecraft mods, and along the way figured out how files and all the different buttons work on your file. I was diving around most of break exploring some hobbies. I have this little 68-key electric piano and it's nice, I used it a lot over break. That thing was probablu such an easy code and build, just like if(key12): play E2. One thing I lused from class was coding. I opened up the files of a bunch of these Minecraft mods and tweaked a lot of things, plus added some method/functions of my own. Very cool very fun.
