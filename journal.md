@@ -4,7 +4,7 @@
 | Zara     | Invisibility         | Extract Prisoner      |
 | Aether   | Telekenisis          | Secure Building       |
 | Thorne   | Shape Shifting       | Retrieve Stolen Goods |
-| Silver   | Mind Control         | Underwater Rescure    | 
+| Silver   | Mind Control         | Underwater Rescure    |
 | Tangier  | Weather Manipulation | Prevent Assasination  |
 
 # March 17, 2025
