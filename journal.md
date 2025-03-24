@@ -1,3 +1,7 @@
+# March 24, 2025
+
+I think AI in the use of sports statistics is a pretty meh idea. All the sports bettings will turn systematic and dull, like the stocks, instead of for the love of the game, studying the characters by how much you love them. Of course most sports fans don't actually do this, but for the ones who do, now they're going against ai nerds wil their dumb stats. It demoralizes the team that the AI disfavors and puts needless confidence in the team that is does favor, turning the actual match more lifeless. The VR stuff is really cool, definetly give all those old-heads a chance to remember what it's like to be young and be back in a game.
+
 # March 4, 2025
 
 | Name     | Power                | Challenge             |
