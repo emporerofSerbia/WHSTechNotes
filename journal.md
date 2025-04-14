@@ -1,3 +1,7 @@
+# April 14, 2025
+
+This is a free week.
+
 # April 7, 2025
 
 AI is SOOOOOO nice for studying!!!!! I don't like to use it much but whenever I do use it, I only have nothing best the best reviews for it. It's a teacher, a full-on teacher that's available for you every second of the day, and will explain the topic to you as simple and baby as you want, without giving you the fear of embarrasment. I think if they're gonna give it directly to kids for studying, they should adapt a lot so that it never gives the answer at the start, just tells you the steps. And if your answer is wrong, it can take it and see what in your process you did wrong and drill you on that exact. I absolutely think it should be used for students for teaching. It's just better and takes another load off the teacher.
