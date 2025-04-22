@@ -1,3 +1,12 @@
+# April 22, 2025
+
+Salutations, Mr. Fenoglio
+
+WHERE HAVE YOU BEEN!?!?!?!?!? It's been like a week since you been in school and I'm scared. I'm scared we did so ass in UIL that you're retiring early. I'm still making the cannoli or maybe I will do tiramasu because I can't find the metal rolls you need to fry the dough for cannoli, but DON'T GO YET!!! You've been so cool in endowing us in the arts of math and numbersense, it's genuinely fun now and I crank ts at home for hours cause I'm having a blast. iakiabaah, I'm not the best, by a long shot, by like two orders of deviation, but yet am I enchanted by this world you've opened the door to.
+
+Salutations,
+walid neon
+
 # April 14, 2025
 
 This is a free week.
