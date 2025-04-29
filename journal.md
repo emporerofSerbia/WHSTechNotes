@@ -1,3 +1,11 @@
+# April 29, 2025
+
+|Name   |Flavor   |Occasion       |Price  |
+|-------|---------|---------------|-------|
+|Sally  |Vanilla  |Farewell Party | $37.00|
+|Micheal|Chocolate| Birthday Party| $35.00|
+|Emma   |Carrot   | Graduation    | $37.50|
+
 # April 22, 2025
 
 Salutations, Mr. Fenoglio
