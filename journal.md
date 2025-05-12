@@ -1,3 +1,7 @@
+# May 12, 2025
+
+to trneds as destructive as these, you can just not care about them. No one is actually doing this, it's like the tidepod challenge. It was just some dumb guy on vine who started it, but once it got on like fox news, thats when everyone knew about. Thats when parents told their kids, "dont eat a tidepod" and the kid will be mad because the parent must think im a complete brainless idiot, feeding into spite. they eat it out of spite. I'd respoond to anyone saying it's just a joke by buying the new pbj reeses cup they arent good but i have a friend who like them.
+
 # May 5, 2025
 
 the gorilla would win. Cause when the men band together, there'll be one of them who needs to use the toilet. And when he uses the toilet, el skib might r3eveal itself. El skib is very domineering, so itd overtake the mans senses with words, potent and virile as a speech given by a general before a soldiers final attack. El skib and the man will come out together as one. Debate would spawn between El skib and the gorilla, on the shrimpingn industry of west Mongolia and it's economic potential. El Skib and the gorilla would become Mongolian shrimp farmers like mr Gump and use the 99 men as collateral to buy their shrimping boat. But then alas, the buisnesss would fail due to the rising aligator worker strike, killing the 99 men who were collateral.
