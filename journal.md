@@ -1,3 +1,7 @@
+# May 19, 2025
+
+I am very reay for summer.
+
 # May 12, 2025
 
 to trneds as destructive as these, you can just not care about them. No one is actually doing this, it's like the tidepod challenge. It was just some dumb guy on vine who started it, but once it got on like fox news, thats when everyone knew about. Thats when parents told their kids, "dont eat a tidepod" and the kid will be mad because the parent must think im a complete brainless idiot, feeding into spite. they eat it out of spite. I'd respoond to anyone saying it's just a joke by buying the new pbj reeses cup they arent good but i have a friend who like them.
